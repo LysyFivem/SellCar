@@ -1,0 +1,3 @@
+--Łysy pozdro
+--AmoraRP: https://discord.gg/MXvWHXBczT
+--Star Leaks: https://discord.gg/gqvZR3FhdQ
